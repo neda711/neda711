@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @neda711
 - 👀 I’m interested in animals especially cats!
 - 🌱 I’m currently learning how to earn money from Nfts.
-   💞️ I’m looking to collaborate on a very friendly group leaded by Mr Alireza
+   💞️ I’m looking to collaborate on a very friendly group leaded by Mr. Alireza
 - 📫 How to reach me this is my Instagram account: m.needaaa
 
 <!---
